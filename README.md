@@ -1,4 +1,4 @@
-# Delite Snickers 
+# Delite Sneackers
 ## Calçados que estão em tendência
 
 
