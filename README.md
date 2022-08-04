@@ -23,3 +23,23 @@ Você pode encontrá-los nos sites oficiais de cada marca.*
 ![image](https://user-images.githubusercontent.com/108139142/181781641-1c6f735b-d951-49ec-9e62-9573ea6981be.png)
 
 
+
+
+**4 -MIZUNO PRO x**
+
+![image](https://user-images.githubusercontent.com/108139142/182905035-2134f921-0bc1-4a17-b35e-e573aa9b3e81.png)
+
+
+ Tênis Mizuno Masculino Corrida Wave Prophecy X ... Ainda assim, o Prophecy X impressiona pela quantidade e qualidades de suas tecnologias.
+ 
+ 
+  
+**5 -MIZUNO WAVE 21 
+![image](https://user-images.githubusercontent.com/108139142/182906278-994b2e7f-e3a9-4945-a889-60372642e977.png)
+
+
+
+**&6 -MIZUNO PRO 11S
+[image](https://user-images.githubusercontent.com/108139142/182906447-0cfe79f2-0496-44e3-ad40-f82e38f6ed7c.png)
+
+Um dos modelos mais queridos pelos admiradores da marca, o MIZUNO WAVE PROPHECY, chega a sua 11ª edição mantendo seu design exclusivo e que conquistou milhares de fãs. Conta tecnologias únicas da marca e busca se aproximar ainda mais do público exigente que procura, além do conforto, um produto que entregue altíssima qualidade e resistência para diversas ocasiões.
